@@ -8,7 +8,7 @@
 
 ### $\color{#FBF3E5}{\textsf{CLOVER}}$ <sub> $\color{#57483D}{\textsf{or}}$ </sub> $\color{#E2DAC7}{\textsf{EDELLO}}$
 
-[<img src="https://i.postimg.cc/W49HPzKv/Untitled320-20260904180821.png" width=202 align="center">](https://cloverrin.straw.page/)
+[<img src="https://i.postimg.cc/W49HPzKv/Untitled320-20260904180821.png" width=202 align="center">](https://edellweiss.straw.page/)
 [<img src="https://i.postimg.cc/kgbdvkj9/Untitled320-20260904202544.png" width=202 align="center">](https://edello.atabook.org/)
 
 <div align="left">
