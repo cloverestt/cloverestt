@@ -13,4 +13,4 @@
 
 <div align="left">
 
-<sup> $\color{#57483D}{\textsf{thanks to richie for helping me make this <3 . . . also ps: click on the images }}$ </sup>
+<sup> $\color{#57483D}{\textsf{ps: click on the images }}$ </sup>
